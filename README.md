@@ -1,1 +1,0 @@
-# lazarski-cyber-risk.github.io
